@@ -1,6 +1,8 @@
 # Script Blox Fruits Mobile (AUTO FARM ) Download Atualizado 2024 
 Blox Fruits é um dos jogos mais populares na plataforma Roblox, oferecendo aos jogadores a chance de explorar ilhas, lutar contra inimigos e aprimorar habilidades com frutas especiais. Para facilitar a experiência e otimizar o progresso, muitos jogadores recorrem a scripts automatizados, como o Script Blox Fruits Mobile (AUTO FARM).
 
+**Download Grátis: [Script Blox Fruits](https://bit.ly/apktudo)**
+
 A versão mais recente de 2024 vem atualizada com funções avançadas que ajudam a farmar automaticamente, desbloquear habilidades e ganhar recompensas rapidamente, proporcionando uma jogabilidade mais eficiente e divertida no celular.
 
 O que é o Script Blox Fruits Mobile?
